@@ -1,6 +1,6 @@
 - Hello, I’m @Julia-PBN
 
-- French high-school student.
+- French college student.
 - she/her ⚧
 
 - I'm interested in maths (mainly algebra/set theory), information theory, conlinguistic and steno.
